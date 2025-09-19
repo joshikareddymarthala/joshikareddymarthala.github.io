@@ -21,7 +21,7 @@
 - **District Combined Courts, Proddatur** (Dec 2023 – Feb 2024, Jun – Jul 2024)  
 - **The Amikus Qriae** (Aug 2024)  
 - **Jus Corpus** (Jan – Aug 2024)  
-- **Prime Legal** (Mar 2025 – Ongoing)  
+- **Prime Legal** (Mar 2025 – May 2025)  
 - **Internship under Hon’ble Justice J. Srinivasa Rao, Telangana High Court** (Jun – Jul 2025)
 
 ---
